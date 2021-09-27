@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @brittneyscott
-- 👀 I’m looking to collaborate on gitcoin marketing concepts. peep the grant chris and I just pitched: https://t.co/A3C46eqpnI?amp=1 
+- currently a steward for the MMM workstream in Gitcoin DAO. peep m-m-m.xyz to see what we're up to :)
 - 📫 How to reach me: IG, email, discord (@brittneyscott) 
 _
 
