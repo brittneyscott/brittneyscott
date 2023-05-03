@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @brittneyscott
-- currently a steward for the MMM workstream in Gitcoin DAO. peep m-m-m.xyz to see what we're up to :)
 - 📫 How to reach me: IG, email, discord (@brittneyscott) 
 _
 
